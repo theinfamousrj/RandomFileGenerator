@@ -1,1 +1,1 @@
-More information can be found at http://www.raymondjohnhill/blog/archives/194
+More information can be found at http://www.raymondjohnhill.com/blog/archives/194
